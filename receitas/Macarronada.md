@@ -13,6 +13,6 @@
 2. Pique as azeitonas
 3. Prepare o molho
 4. Quanto o molho estiver pré-pronto coloque as azeitonas
-5. Junto e se sirva 
+5. Junte e se sirva 
 
 
